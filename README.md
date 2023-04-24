@@ -1,1 +1,1 @@
-"# Money-Alignment-Helping-People-Make-Smart-Money-Decisions" 
+# Money-Alignment-Helping-People-Make-Smart-Money-Decisions
